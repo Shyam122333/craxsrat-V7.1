@@ -1,5 +1,8 @@
 ⚠️disclaimer⚠️
 this tool educational purpose only pls do not miss use
+steps
+1. run loader
+2. run craxsrat-v7.1
 
 
 
