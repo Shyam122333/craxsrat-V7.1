@@ -3,7 +3,7 @@ this tool educational purpose only pls do not miss use
 
 
 
-[P![download (1)](https://github.com/willowcode7/craxsrat-V7.1-cracked/assets/149257537/3124f15c-75f2-4cb2-bae2-2e7b75e81e19)
+(https://github.com/willowcode7/craxsrat-V7.1-cracked/assets/149257537/3124f15c-75f2-4cb2-bae2-2e7b75e81e19)
 
 
 
